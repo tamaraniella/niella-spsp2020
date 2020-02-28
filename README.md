@@ -8,12 +8,12 @@
  
 ### Link to Pre-Registration: 
 
-```markdown
+
 [Link](https://osf.io/4962h)
 
 https://drive.google.com/file/d/12crD7fxHQ4e2z2E7VpUEwx0jul2kYAce/view?usp=sharing
 
-```
+
 
 ### Access my Poster: http://bit.ly/2Pteol1 
 
